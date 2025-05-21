@@ -1,0 +1,1 @@
+# Dynamicke_stranky
